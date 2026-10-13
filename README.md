@@ -1,0 +1,2 @@
+# premium-maiolica-001-maiolica-tin-glazed-pottery
+Tired of confusing museum labels that mention 'maiolica' without explaining what makes it glow? This guide decodes the lost art of tin-glazing that transformed Renaissance ceramics into luminous masterpieces.  You'll finally understand why Renaissance potters risked lead poisoning for that brilliant white base, and how to spot authentic tin-glazed
